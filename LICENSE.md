@@ -1,4 +1,4 @@
-# 
+# Oficial trader joe trading bot scripts para Mac OS | VIP trader joe trading bot scripts para PC Windows. Com segurança de chave privada e processamento em lote — otimizado para máximo desempenho em cada plataforma.
 
 
 
